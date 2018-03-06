@@ -1,2 +1,2 @@
 # Cetemohd-day1
-day 1Demo
+day 1De God is good for me
